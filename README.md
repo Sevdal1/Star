@@ -1,0 +1,2 @@
+# Star
+Insonlarga foydali bõlsin 
